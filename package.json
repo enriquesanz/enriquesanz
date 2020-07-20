@@ -1,0 +1,24 @@
+{
+  "name": "enriquesanz",
+  "version": "1.0.0",
+  "description": "enriquesanz README GitHub Profile",
+  "main": "index.js",
+  "scripts": {
+    "update-readme": "",
+    "test": "echo \"Error: no test specified\" && exit 1"
+  },
+  "repository": {
+    "type": "git",
+    "url": "git+https://github.com/enriquesanz/enriquesanz.git"
+  },
+  "keywords": [],
+  "author": "",
+  "license": "ISC",
+  "bugs": {
+    "url": "https://github.com/enriquesanz/enriquesanz/issues"
+  },
+  "homepage": "https://github.com/enriquesanz/enriquesanz#readme",
+  "dependencies": {
+    "rss-parser": "^3.8.0"
+  }
+}
