@@ -14,4 +14,4 @@ Si quieres ponerte en contacto conmigo, puedes escribirme por [✉️Telegram](h
 
 Escucha el último episodio de Planeta Cuñao:
 
-[Maldiciones](https://cuonda.com/planeta-cunao/maldiciones/1598649.mp3)![Maldiciones](https://cuonda.com/storage/podcasts/37/1598649/image.jpg?gen=3a758727bd00dd28dfb590ea296d5770 | width=100)
+[Maldiciones](https://cuonda.com/planeta-cunao/maldiciones/1598649.mp3)![Maldiciones](https://cuonda.com/storage/podcasts/37/1598649/image.jpg?gen=3a758727bd00dd28dfb590ea296d5770)
