@@ -1,4 +1,13 @@
-### Hi there 👋
+### ¡Hola! 👋
+
+<p>
+            ¿Qué tal, cómo te va? Si estás aquí es muy probable que algo sepas sobre mi o que hayamos tenido algún contacto, pero, por si acaso, te voy a hacer un resumen de quien soy. 
+            Soy Enrique Sanz Yagüe, y soy, principalmente, desarrollador web 🖥 , aunque he hecho un poco de todo, incluyendo aplicaciones móviles 📱, algún videojuego 👾 y labores de mantenimiento de redes 💻.
+          <br>
+            Además hago, junto con unos cuantos amigos, el podcast <a href="http://planetacunao.com/">Planeta Cuñao</a> <img src="img/pcico.png" alt="Planeta Cuñao"> que, ahora mismo, es la niña de mis ojos en lo que a proyectos personales se refiere.
+          <br>
+            Si quieres ponerte en contacto conmigo, puedes escribirme por Telegram <a href="http://t.me/enriquesanz"><i class="fab fa-telegram"></i></a> o puedes mandarme un correo <a href="mailto:enriquesanz@gmail.com"><i class="far fa-envelope"></i></a>.
+</p>
 
 <!--
 **enriquesanz/enriquesanz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
