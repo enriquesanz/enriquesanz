@@ -10,8 +10,6 @@ Además hago, junto con unos cuantos amigos, el podcast  [Planeta Cuñao](http:/
 
 Si quieres ponerte en contacto conmigo, puedes escribirme por [✉️Telegram](http://t.me/enriquesanz) o puedes mandarme un [📯correo](mailto:enriquesanz@gmail.com).
 
-
-
 Escucha el último episodio de Planeta Cuñao:
 
 %{{latest_episode}}%
