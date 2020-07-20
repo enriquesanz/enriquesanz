@@ -6,7 +6,7 @@
           <br>
             Además hago, junto con unos cuantos amigos, el podcast <a href="http://planetacunao.com/">Planeta Cuñao</a> <img src="https://user-images.githubusercontent.com/332383/87920765-f47e6880-ca79-11ea-8673-7ebc2948122b.png" alt="Planeta Cuñao"> que, ahora mismo, es la niña de mis ojos en lo que a proyectos personales se refiere.
           <br>
-            Si quieres ponerte en contacto conmigo, puedes escribirme por Telegram <a href="http://t.me/enriquesanz"><i class="fab fa-telegram"></i></a> o puedes mandarme un correo <a href="mailto:enriquesanz@gmail.com"><i class="far fa-envelope"></i></a>.
+            Si quieres ponerte en contacto conmigo, puedes escribirme por <a href="http://t.me/enriquesanz">Telegram</a> o puedes mandarme un <a href="mailto:enriquesanz@gmail.com">correo</a>.
 </p>
 
 
