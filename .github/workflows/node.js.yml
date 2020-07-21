@@ -24,5 +24,5 @@ jobs:
         git config user.name "enriquesanz"
         git config user.email "enriquesanz@gmail.com"
         git add README.md
-        git commit -m "Actualizado README.md"
+        git diff --quiet && git diff --staged --quiet || git commit -m "[bot] Update README with latest info"
         git push origin master
