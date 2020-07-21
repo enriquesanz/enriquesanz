@@ -21,7 +21,7 @@ jobs:
     - run: npm install
     - run: npm run update-readme
     - run: |
-        git config user.name enriquesanz
+        git config user.name "enriquesanz"
         git config user.email enriquesanz@gmail.com
         git add README.md
         git commit -m "Actualizado README.md"
