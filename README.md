@@ -9,4 +9,4 @@ Si quieres ponerte en contacto conmigo, puedes escribirme por [✉️Telegram](h
 
 ## Escucha el último episodio de Planeta Cuñao:
 
-### [Maldiciones](https://cuonda.com/planeta-cunao/maldiciones)<br/>*Así te rías escuchando éste episodio.*<br/><a href="https://cuonda.com/planeta-cunao/maldiciones"><img src="https://cuonda.com/storage/podcasts/37/1598649/image.jpg?gen=3a758727bd00dd28dfb590ea296d5770" width=50%></a>
+### [Maldiciones](https://cuonda.com/planeta-cunao/maldiciones)<br/>*Así te rías escuchando éste episodio.*<br/><a href="https://cuonda.com/planeta-cunao/maldiciones"><img src="https://cuonda.com/storage/podcasts/37/1598649/image.jpg?gen=65866246fae4e80ceb5f6947685e615b" width=50%></a>
