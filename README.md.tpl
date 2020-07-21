@@ -1,4 +1,4 @@
-### ¡Hola! Soy enriquesanz👋
+# ¡Hola! Soy **enriquesanz**👋
 
 ¿Qué tal, cómo te va? Si estás aquí es muy probable que algo sepas sobre mi o que hayamos tenido algún contacto, pero, por si acaso, te voy a hacer un resumen de quien soy. 
 Soy Enrique Sanz Yagüe, y soy, principalmente, desarrollador web 🖥 , aunque he hecho un poco de todo, incluyendo aplicaciones móviles 📱, algún videojuego 👾 y labores de mantenimiento de redes 💻.
@@ -10,6 +10,6 @@ Además hago, junto con unos cuantos amigos, el podcast  [Planeta Cuñao](http:/
 
 Si quieres ponerte en contacto conmigo, puedes escribirme por [✉️Telegram](http://t.me/enriquesanz) o puedes mandarme un [📯correo](mailto:enriquesanz@gmail.com).
 
-Escucha el último episodio de Planeta Cuñao:
+## Escucha el último episodio de Planeta Cuñao:
 
 %{{latest_episode}}%
