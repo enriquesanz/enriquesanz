@@ -1,4 +1,4 @@
-# ¡Hola! Soy **enriquesanz**👋
+# ¡Hola! Soy **enriquesanz** <img src="img/Hi.gif" width="30px">
 
 ¿Qué tal, cómo te va? Si estás aquí es muy probable que algo sepas sobre mi o que hayamos tenido algún contacto, pero, por si acaso, te voy a hacer un resumen de quien soy. 
 Soy Enrique Sanz Yagüe, y soy, principalmente, desarrollador web 🖥 , aunque he hecho un poco de todo, incluyendo aplicaciones móviles 📱, algún videojuego 👾 y labores de mantenimiento de redes 💻.
