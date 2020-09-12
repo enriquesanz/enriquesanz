@@ -9,4 +9,4 @@ Si quieres ponerte en contacto conmigo, puedes escribirme por [✉️Telegram](h
 
 ## Escucha el último episodio de Planeta Cuñao:
 
-### [Maldiciones](https://cuonda.com/planeta-cunao/maldiciones)<br/>*Así te rías escuchando éste episodio.*<br/><a href="https://cuonda.com/planeta-cunao/maldiciones"><img src="https://cuonda.com/storage/podcasts/37/1598649/image.jpg?gen=65866246fae4e80ceb5f6947685e615b" width=50%></a>
+### [Sociedades Secretas (Pero poco)](https://cuonda.com/planeta-cunao/sociedades-secretas-pero-poco)<br/>*Si realmente fueran secretas, no hubiéramos podido hacer éste episodio.*<br/><a href="https://cuonda.com/planeta-cunao/sociedades-secretas-pero-poco"><img src="https://cuonda.com/storage/podcasts/37/1606788/image.jpg?gen=f4dd48cef730952085eed7c60723319b" width=50%></a>
