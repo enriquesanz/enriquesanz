@@ -9,4 +9,4 @@ Si quieres ponerte en contacto conmigo, puedes escribirme por [✉️Telegram](h
 
 ## Escucha el último episodio de Planeta Cuñao:
 
-### [Sociedades Secretas (Pero poco)](https://cuonda.com/planeta-cunao/sociedades-secretas-pero-poco)<br/>*Si realmente fueran secretas, no hubiéramos podido hacer éste episodio.*<br/><a href="https://cuonda.com/planeta-cunao/sociedades-secretas-pero-poco"><img src="https://cuonda.com/storage/podcasts/37/1606788/image.jpg?gen=f4dd48cef730952085eed7c60723319b" width=50%></a>
+### [Sociedades Secretas (Pero poco)](https://cuonda.com/planeta-cunao/sociedades-secretas-pero-poco)<br/>*Si realmente fueran secretas, no hubiéramos podido hacer éste episodio.*<br/><a href="https://cuonda.com/planeta-cunao/sociedades-secretas-pero-poco"><img src="https://cuonda.com/storage/podcasts/37/1606788/image.jpg?gen=cb34b350047c76ef6984deff5b38ebb0" width=50%></a>
