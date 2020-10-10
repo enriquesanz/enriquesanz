@@ -9,4 +9,4 @@ Si quieres ponerte en contacto conmigo, puedes escribirme por [✉️Telegram](h
 
 ## Escucha el último episodio de Planeta Cuñao:
 
-### [La próxima extinción](https://cuonda.com/planeta-cunao/la-proxima-extincion)<br/>*Señor llévanos pronto.*<br/><a href="https://cuonda.com/planeta-cunao/la-proxima-extincion"><img src="https://cuonda.com/storage/podcasts/37/1606858/image.jpg?gen=bb2cb77f80f05753de933ab6a22b5646" width=50%></a>
+### [Los populismos](https://cuonda.com/planeta-cunao/los-populismos)<br/>*Nosotros somos los que mejor representan tu voz.*<br/><a href="https://cuonda.com/planeta-cunao/los-populismos"><img src="https://cuonda.com/storage/podcasts/37/1607431/image.jpg?gen=eaf09106ffa6b71ff7f30fcc8a5a0c16" width=50%></a>
