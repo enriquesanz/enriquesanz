@@ -9,4 +9,4 @@ Si quieres ponerte en contacto conmigo, puedes escribirme por [✉️Telegram](h
 
 ## Escucha el último episodio de Planeta Cuñao:
 
-### [El dinero](https://cuonda.com/planeta-cunao/el-dinero)<br/>*El día que la mierda tenga algún valor, los pobres nacerán sin culo.*<br/><a href="https://cuonda.com/planeta-cunao/el-dinero"><img src="https://cuonda.com/storage/podcasts/37/1608295/image.png?gen=0029794aa84b2525e99dfdd8d7ca365c" width=50%></a>
+### [El dinero](https://cuonda.com/planeta-cunao/el-dinero)<br/>*El día que la mierda tenga algún valor, los pobres nacerán sin culo.*<br/><a href="https://cuonda.com/planeta-cunao/el-dinero"><img src="https://cuonda.com/storage/podcasts/37/1608295/image.png?gen=46f9dac4cf8b88fcec8bd3f13935891d" width=50%></a>
