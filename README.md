@@ -9,4 +9,4 @@ Si quieres ponerte en contacto conmigo, puedes escribirme por [✉️Telegram](h
 
 ## Escucha el último episodio de Planeta Cuñao:
 
-### [El dinero](https://cuonda.com/planeta-cunao/el-dinero)<br/>*El día que la mierda tenga algún valor, los pobres nacerán sin culo.*<br/><a href="https://cuonda.com/planeta-cunao/el-dinero"><img src="https://cuonda.com/storage/podcasts/37/1608295/image.png?gen=46f9dac4cf8b88fcec8bd3f13935891d" width=50%></a>
+### [Los abogados](https://cuonda.com/planeta-cunao/los-abogados)<br/>*¡Protesto! ¡Denegada¡ ¡Admitida¡ ¡Sobreseído! No tengo ni idea de qué estoy diciendo.*<br/><a href="https://cuonda.com/planeta-cunao/los-abogados"><img src="https://cuonda.com/storage/podcasts/37/1609323/image.jpg?gen=577a54acb36f443e95f89a4271bf712a" width=50%></a>
