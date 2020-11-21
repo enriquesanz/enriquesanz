@@ -9,4 +9,4 @@ Si quieres ponerte en contacto conmigo, puedes escribirme por [✉️Telegram](h
 
 ## Escucha el último episodio de Planeta Cuñao:
 
-### [Los abogados](https://cuonda.com/planeta-cunao/los-abogados)<br/>*¡Protesto! ¡Denegada¡ ¡Admitida¡ ¡Sobreseído! No tengo ni idea de qué estoy diciendo.*<br/><a href="https://cuonda.com/planeta-cunao/los-abogados"><img src="https://cuonda.com/storage/podcasts/37/1609323/image.jpg?gen=577a54acb36f443e95f89a4271bf712a" width=50%></a>
+### [Las drogas](https://cuonda.com/planeta-cunao/las-drogas)<br/>*Que quede claro: alejaos de las drogas, son asuntos turbios.*<br/><a href="https://cuonda.com/planeta-cunao/las-drogas"><img src="https://cuonda.com/storage/podcasts/37/1610340/image.png?gen=33db8078595a7b3d4a82af556aec9d7b" width=50%></a>
