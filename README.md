@@ -9,4 +9,4 @@ Si quieres ponerte en contacto conmigo, puedes escribirme por [✉️Telegram](h
 
 ## Escucha el último episodio de Planeta Cuñao:
 
-### [Los horarios](https://cuonda.com/planeta-cunao/los-horarios)<br/>*“Por muy lentamente que os parezca que pasan las horas, os parecerán cortas si pensáis que nunca más han de volver a pasar.” Y si escuchas esto, más cortas todavía.*<br/><a href="https://cuonda.com/planeta-cunao/los-horarios"><img src="https://cuonda.com/storage/podcasts/37/1611623/image.jpg?gen=ae03cc21550d8e8b67aeace902c269b5" width=50%></a>
+### [La mitología nórdica](https://cuonda.com/planeta-cunao/la-mitologia-nordica)<br/>*Thorpedeamos tus oídos con este episodio.*<br/><a href="https://cuonda.com/planeta-cunao/la-mitologia-nordica"><img src="https://cuonda.com/storage/podcasts/37/1612353/image.jpg?gen=b2933444a597215a904b5d9f533b4d37" width=50%></a>
