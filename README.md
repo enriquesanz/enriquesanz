@@ -9,4 +9,4 @@ Si quieres ponerte en contacto conmigo, puedes escribirme por [✉️Telegram](h
 
 ## Escucha el último episodio de Planeta Cuñao:
 
-### [La mitología nórdica](https://cuonda.com/planeta-cunao/la-mitologia-nordica)<br/>*Thorpedeamos tus oídos con este episodio.*<br/><a href="https://cuonda.com/planeta-cunao/la-mitologia-nordica"><img src="https://cuonda.com/storage/podcasts/37/1612353/image.jpg?gen=b2933444a597215a904b5d9f533b4d37" width=50%></a>
+### [Premios Cuñaladas 2020](https://cuonda.com/planeta-cunao/premios-cunaladas-2020)<br/>*Entrega de los premios Cuñaladas 2020*<br/><a href="https://cuonda.com/planeta-cunao/premios-cunaladas-2020"><img src="https://cuonda.com/storage/podcasts/37/1612783/image.jpg?gen=03c9f0891d685f2da6e936c4eec4d66e" width=50%></a>
