@@ -9,4 +9,4 @@ Si quieres ponerte en contacto conmigo, puedes escribirme por [✉️Telegram](h
 
 ## Escucha el último episodio de Planeta Cuñao:
 
-### [Premios Cuñaladas 2020](https://cuonda.com/planeta-cunao/premios-cunaladas-2020)<br/>*Entrega de los premios Cuñaladas 2020*<br/><a href="https://cuonda.com/planeta-cunao/premios-cunaladas-2020"><img src="https://cuonda.com/storage/podcasts/37/1612783/image.jpg?gen=03c9f0891d685f2da6e936c4eec4d66e" width=50%></a>
+### [Premios Cuñaladas 2020](https://cuonda.com/planeta-cunao/premios-cunaladas-2020)<br/>*Entrega de los premios Cuñaladas 2020 disponible en youtube.com/planetacuñao*<br/><a href="https://cuonda.com/planeta-cunao/premios-cunaladas-2020"><img src="https://cuonda.com/storage/podcasts/37/1612783/image.jpg?gen=fc6bd71d32ad8f8c77117440456ba8b9" width=50%></a>
