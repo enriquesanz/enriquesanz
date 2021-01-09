@@ -9,4 +9,4 @@ Si quieres ponerte en contacto conmigo, puedes escribirme por [✉️Telegram](h
 
 ## Escucha el último episodio de Planeta Cuñao:
 
-### [Premios Cuñaladas 2020](https://cuonda.com/planeta-cunao/premios-cunaladas-2020)<br/>*Entrega de los premios Cuñaladas 2020 disponible en youtube.com/planetacuñao*<br/><a href="https://cuonda.com/planeta-cunao/premios-cunaladas-2020"><img src="https://cuonda.com/storage/podcasts/37/1612783/image.jpg?gen=95bd41a084233cbc42c65c8ba95be44c" width=50%></a>
+### [Expediente Trump](https://cuonda.com/planeta-cunao/expediente-trump)<br/>*Muy señores nuestros de la CIA: Os queremos y sois muy especiales, pero marchaos a casa.*<br/><a href="https://cuonda.com/planeta-cunao/expediente-trump"><img src="https://cuonda.com/storage/podcasts/37/1613319/image.jpg?gen=6f49d27517fe33c1e7a433f33800c25c" width=50%></a>
