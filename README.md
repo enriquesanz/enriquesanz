@@ -9,4 +9,4 @@ Si quieres ponerte en contacto conmigo, puedes escribirme por [✉️Telegram](h
 
 ## Escucha el último episodio de Planeta Cuñao:
 
-### [Expediente Trump](https://cuonda.com/planeta-cunao/expediente-trump)<br/>*Muy señores nuestros de la CIA: Os queremos y sois muy especiales, pero marchaos a casa.*<br/><a href="https://cuonda.com/planeta-cunao/expediente-trump"><img src="https://cuonda.com/storage/podcasts/37/1613319/image.jpg?gen=6f49d27517fe33c1e7a433f33800c25c" width=50%></a>
+### [Expediente Trump](https://cuonda.com/planeta-cunao/expediente-trump)<br/>*Muy señores nuestros de la CIA: Os queremos y sois muy especiales, pero marchaos a casa.*<br/><a href="https://cuonda.com/planeta-cunao/expediente-trump"><img src="https://cuonda.com/storage/podcasts/37/1613319/image.jpg?gen=3ae936f8c1e953805564e72cd0674253" width=50%></a>
