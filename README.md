@@ -9,4 +9,4 @@ Si quieres ponerte en contacto conmigo, puedes escribirme por [✉️Telegram](h
 
 ## Escucha el último episodio de Planeta Cuñao:
 
-### [Expediente Trump](https://cuonda.com/planeta-cunao/expediente-trump)<br/>*Muy señores nuestros de la CIA: Os queremos y sois muy especiales, pero marchaos a casa.*<br/><a href="https://cuonda.com/planeta-cunao/expediente-trump"><img src="https://cuonda.com/storage/podcasts/37/1613319/image.jpg?gen=3ae936f8c1e953805564e72cd0674253" width=50%></a>
+### [Las pirámides](https://cuonda.com/planeta-cunao/las-piramides)<br/>*👁🐺🐱🎎🤏🐍(Esto es un intento patético de hacer un jeroglífico con emojis)*<br/><a href="https://cuonda.com/planeta-cunao/las-piramides"><img src="https://cuonda.com/storage/podcasts/37/1614257/image.jpg?gen=09ba9ab9a1598602cdff92f3d85e7c39" width=50%></a>
