@@ -9,4 +9,4 @@ Si quieres ponerte en contacto conmigo, puedes escribirme por [✉️Telegram](h
 
 ## Escucha el último episodio de Planeta Cuñao:
 
-### [Las pirámides](https://cuonda.com/planeta-cunao/las-piramides)<br/>*👁🐺🐱🎎🤏🐍(Esto es un intento patético de hacer un jeroglífico con emojis)*<br/><a href="https://cuonda.com/planeta-cunao/las-piramides"><img src="https://cuonda.com/storage/podcasts/37/1614257/image.jpg?gen=09ba9ab9a1598602cdff92f3d85e7c39" width=50%></a>
+### [Nike vs Adidas](https://cuonda.com/planeta-cunao/nike-vs-adidas)<br/>*Recomendado para flipaos de las zapatillas y/o rusos con chándal.*<br/><a href="https://cuonda.com/planeta-cunao/nike-vs-adidas"><img src="https://cuonda.com/storage/podcasts/37/1614875/image.jpg?gen=1810728f5601cdc5291ca36c950bf096" width=50%></a>
