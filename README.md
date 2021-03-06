@@ -9,4 +9,4 @@ Si quieres ponerte en contacto conmigo, puedes escribirme por [✉️Telegram](h
 
 ## Escucha el último episodio de Planeta Cuñao:
 
-### [Expediente YouTube](https://cuonda.com/planeta-cunao/expediente-youtube)<br/>*Todo el día ahí con la pantallita.*<br/><a href="https://cuonda.com/planeta-cunao/expediente-youtube"><img src="https://cuonda.com/storage/podcasts/37/1616125/image.jpg?gen=5db0c71fdb48e5ee42bb030124ef25ed" width=50%></a>
+### [La numerología](https://cuonda.com/planeta-cunao/la-numerologia)<br/>*Si sabes contar, no cuentes conmigo.*<br/><a href="https://cuonda.com/planeta-cunao/la-numerologia"><img src="https://cuonda.com/storage/podcasts/37/1616934/image.jpg?gen=10b05d4ec2f47ca7ac2679494b40c164" width=50%></a>
