@@ -9,4 +9,4 @@ Si quieres ponerte en contacto conmigo, puedes escribirme por [✉️Telegram](h
 
 ## Escucha el último episodio de Planeta Cuñao:
 
-### [El horóscopo](https://cuonda.com/planeta-cunao/el-horoscopo)<br/>*Aries, Tauro, Géminis, Cáncer, Leo, Virgo, Libra, Escorpio, Sagitario, Capricornio, Acuario, Piscis, Gabi, Fofó y Miliki*<br/><a href="https://cuonda.com/planeta-cunao/el-horoscopo"><img src="https://cuonda.com/storage/podcasts/37/1617722/image.jpg?gen=53dd0315a4d12252c2dc28f7e68a2576" width=50%></a>
+### [La Fórmula 1](https://cuonda.com/planeta-cunao/la-formula-1-2)<br/>*🏎 Ñiiiiiiaaooooo. Fiuuuuuuuuuuuuuuu. Bruummmmmmmmmmm. 🏎*<br/><a href="https://cuonda.com/planeta-cunao/la-formula-1-2"><img src="https://cuonda.com/storage/podcasts/37/1618775/image.jpg?gen=7efb959a74e4c1e765a47073e07eb748" width=50%></a>
