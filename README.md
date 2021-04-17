@@ -9,4 +9,4 @@ Si quieres ponerte en contacto conmigo, puedes escribirme por [✉️Telegram](h
 
 ## Escucha el último episodio de Planeta Cuñao:
 
-### [La Fórmula 1](https://cuonda.com/planeta-cunao/la-formula-1-2)<br/>*undefined*<br/><a href="https://cuonda.com/planeta-cunao/la-formula-1-2"><img src="https://cuonda.com/storage/podcasts/37/1618775/image.jpg?gen=7efb959a74e4c1e765a47073e07eb748" width=50%></a>
+### [Desmontando a QAnon](https://cuonda.com/planeta-cunao/desmontando-a-qanon)<br/>*undefined*<br/><a href="https://cuonda.com/planeta-cunao/desmontando-a-qanon"><img src="https://cuonda.com/storage/podcasts/37/1619692/image.jpg?gen=2fd7b7d4a95e84a439cb23cf9b9bc4f1" width=50%></a>
