@@ -9,4 +9,4 @@ Si quieres ponerte en contacto conmigo, puedes escribirme por [✉️Telegram](h
 
 ## Escucha el último episodio de Planeta Cuñao:
 
-### [Desmontando a QAnon](https://cuonda.com/planeta-cunao/desmontando-a-qanon)<br/>*undefined*<br/><a href="https://cuonda.com/planeta-cunao/desmontando-a-qanon"><img src="https://cuonda.com/storage/podcasts/37/1619692/image.jpg?gen=5e785469f51c3004f65af529833fbfe1" width=50%></a>
+### [Viajes en el tiempo](https://cuonda.com/planeta-cunao/viajes-en-el-tiempo)<br/>*undefined*<br/><a href="https://cuonda.com/planeta-cunao/viajes-en-el-tiempo"><img src="https://cuonda.com/storage/podcasts/37/1620613/image.jpg?gen=0d6b1c3702f3fed12e0a4aba3607682a" width=50%></a>
