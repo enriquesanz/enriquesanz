@@ -9,4 +9,4 @@ Si quieres ponerte en contacto conmigo, puedes escribirme por [✉️Telegram](h
 
 ## Escucha el último episodio de Planeta Cuñao:
 
-### [Viajes en el tiempo](https://cuonda.com/planeta-cunao/viajes-en-el-tiempo)<br/>*undefined*<br/><a href="https://cuonda.com/planeta-cunao/viajes-en-el-tiempo"><img src="https://cuonda.com/storage/podcasts/37/1620613/image.jpg?gen=0d6b1c3702f3fed12e0a4aba3607682a" width=50%></a>
+### [La bolsa](https://cuonda.com/planeta-cunao/la-bolsa)<br/>*undefined*<br/><a href="https://cuonda.com/planeta-cunao/la-bolsa"><img src="https://cuonda.com/storage/podcasts/37/1621555/image.jpg?gen=db3df15baa7e6a12abfac8281187c318" width=50%></a>
