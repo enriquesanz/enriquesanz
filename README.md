@@ -9,4 +9,4 @@ Si quieres ponerte en contacto conmigo, puedes escribirme por [✉️Telegram](h
 
 ## Escucha el último episodio de Planeta Cuñao:
 
-### [Los supermercados](https://cuonda.com/planeta-cunao/los-supermercados)<br/>*undefined*<br/><a href="https://cuonda.com/planeta-cunao/los-supermercados"><img src="https://cuonda.com/storage/podcasts/37/1622286/image.jpg?gen=7db376213500d68bea8f3ffca31c8738" width=50%></a>
+### [Los supermercados](https://cuonda.com/planeta-cunao/los-supermercados)<br/>*undefined*<br/><a href="https://cuonda.com/planeta-cunao/los-supermercados"><img src="https://cuonda.com/storage/podcasts/37/1622286/image.jpg?gen=b71ea5f61bb8ab65ab4e14c60e21a817" width=50%></a>
