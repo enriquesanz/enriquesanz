@@ -19,7 +19,8 @@ const LATEST_EPISODE_PLACEHOLDER = '%{{latest_episode}}%';
 
 
     
-    const latestEpisodeMarkdown = `### [${latestArticle.title}](${episodeUrl})<br/>*${latestArticle.itunes.summary}*<br/><a href="${episodeUrl}"><img src="${latestArticle.itunes.image}" width=50%></a>`;
+    //const latestEpisodeMarkdown = `### [${latestArticle.title}](${episodeUrl})<br/>*${latestArticle.itunes.summary}*<br/><a href="${episodeUrl}"><img src="${latestArticle.itunes.image}" width=50%></a>`;
+    const latestEpisodeMarkdown = `### [${latestArticle.title}](${episodeUrl})<br/><br/><a href="${episodeUrl}"><img src="${latestArticle.itunes.image}" width=50%></a>`;
     const newMarkDown = markdownTemplate.replace(LATEST_EPISODE_PLACEHOLDER, latestEpisodeMarkdown);
     
     await fs.writeFile('./README.md', newMarkDown);
