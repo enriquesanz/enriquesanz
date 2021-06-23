@@ -9,4 +9,4 @@ Si quieres ponerte en contacto conmigo, puedes escribirme por [✉️Telegram](h
 
 ## Escucha el último episodio de Planeta Cuñao:
 
-### [Los marcianos](https://cuonda.com/planeta-cunao/los-marcianos)<br/>*undefined*<br/><a href="https://cuonda.com/planeta-cunao/los-marcianos"><img src="https://cuonda.com/storage/podcasts/37/1623226/image.jpg?gen=b5166803ebe7766b322f9901faa19b8c" width=50%></a>
+### [Los marcianos](https://cuonda.com/planeta-cunao/los-marcianos)<br/><br/><a href="https://cuonda.com/planeta-cunao/los-marcianos"><img src="https://cuonda.com/storage/podcasts/37/1623226/image.jpg?gen=b5166803ebe7766b322f9901faa19b8c" width=50%></a>
