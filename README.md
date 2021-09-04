@@ -9,4 +9,4 @@ Si quieres ponerte en contacto conmigo, puedes escribirme por [✉️Telegram](h
 
 ## Escucha el último episodio de Planeta Cuñao:
 
-### [Compradores compulsivos](https://cuonda.com/planeta-cunao/compradores-compulsivos)<br/><br/><a href="https://cuonda.com/planeta-cunao/compradores-compulsivos"><img src="https://cuonda.com/storage/podcasts/37/1624782/image.jpg?gen=f4d79d51a49135f4cfd88cc2b106545a" width=50%></a>
+### [Expediente Schwarzenegger](https://cuonda.com/planeta-cunao/expediente-schwarzenegger)<br/><br/><a href="https://cuonda.com/planeta-cunao/expediente-schwarzenegger"><img src="https://cuonda.com/storage/podcasts/37/1628150/image.jpg?gen=273304a74880ebf36bcef6a21ee2f169" width=50%></a>
