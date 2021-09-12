@@ -9,4 +9,4 @@ Si quieres ponerte en contacto conmigo, puedes escribirme por [✉️Telegram](h
 
 ## Escucha el último episodio de Planeta Cuñao:
 
-### [Expediente Schwarzenegger](https://cuonda.com/planeta-cunao/expediente-schwarzenegger)<br/><br/><a href="https://cuonda.com/planeta-cunao/expediente-schwarzenegger"><img src="https://cuonda.com/storage/podcasts/37/1628150/image.jpg?gen=f18d8f964604ad3cba6ce3f5ffcc40a5" width=50%></a>
+### [Piscolabis: La chapa de la mendicidad](https://cuonda.com/planeta-cunao/piscolabis-la-chapa-de-la-mendicidad)<br/><br/><a href="https://cuonda.com/planeta-cunao/piscolabis-la-chapa-de-la-mendicidad"><img src="https://cuonda.com/storage/podcasts/37/1628777/image.jpg?gen=4ef174a08b192d6e90bbbad9b47b1645" width=50%></a>
