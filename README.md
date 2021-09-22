@@ -9,4 +9,4 @@ Si quieres ponerte en contacto conmigo, puedes escribirme por [✉️Telegram](h
 
 ## Escucha el último episodio de Planeta Cuñao:
 
-### [La comida basura](https://cuonda.com/planeta-cunao/la-comida-basura)<br/><br/><a href="https://cuonda.com/planeta-cunao/la-comida-basura"><img src="https://cuonda.com/storage/podcasts/37/1629033/image.png?gen=aee67deabe522a374ca88d042b7c494f" width=50%></a>
+### [La comida basura](https://cuonda.com/planeta-cunao/la-comida-basura)<br/><br/><a href="https://cuonda.com/planeta-cunao/la-comida-basura"><img src="https://cuonda.com/storage/podcasts/37/1629033/image.png?gen=7885a117f4631e83ba2e0a65664a61c0" width=50%></a>
