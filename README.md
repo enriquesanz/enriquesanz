@@ -9,4 +9,4 @@ Si quieres ponerte en contacto conmigo, puedes escribirme por [✉️Telegram](h
 
 ## Escucha el último episodio de Planeta Cuñao:
 
-### [Las serendipias](https://cuonda.com/planeta-cunao/las-serendipias)<br/><br/><a href="https://cuonda.com/planeta-cunao/las-serendipias"><img src="https://cuonda.com/storage/podcasts/37/1629933/image.jpg?gen=5716ce78ffcec02b3359694958e54672" width=50%></a>
+### [Los refranes](https://cuonda.com/planeta-cunao/los-refranes)<br/><br/><a href="https://cuonda.com/planeta-cunao/los-refranes"><img src="https://cuonda.com/storage/podcasts/37/1630605/image.jpg?gen=dc6044cc24a1141826452a3d8293b1b8" width=50%></a>
