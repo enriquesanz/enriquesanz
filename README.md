@@ -9,4 +9,4 @@ Si quieres ponerte en contacto conmigo, puedes escribirme por [✉️Telegram](h
 
 ## Escucha el último episodio de Planeta Cuñao:
 
-### [Los refranes](https://cuonda.com/planeta-cunao/los-refranes)<br/><br/><a href="https://cuonda.com/planeta-cunao/los-refranes"><img src="https://cuonda.com/storage/podcasts/37/1630605/image.jpg?gen=dc6044cc24a1141826452a3d8293b1b8" width=50%></a>
+### [Los vampiros](https://cuonda.com/planeta-cunao/los-vampiros)<br/><br/><a href="https://cuonda.com/planeta-cunao/los-vampiros"><img src="https://cuonda.com/storage/podcasts/37/1631384/image.jpg?gen=889d45d52edc4bbd44e1771c0399bbd6" width=50%></a>
