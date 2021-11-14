@@ -9,4 +9,4 @@ Si quieres ponerte en contacto conmigo, puedes escribirme por [✉️Telegram](h
 
 ## Escucha el último episodio de Planeta Cuñao:
 
-### [Los vampiros](https://cuonda.com/planeta-cunao/los-vampiros)<br/><br/><a href="https://cuonda.com/planeta-cunao/los-vampiros"><img src="https://cuonda.com/storage/podcasts/37/1631384/image.jpg?gen=889d45d52edc4bbd44e1771c0399bbd6" width=50%></a>
+### [La cerveza](https://cuonda.com/planeta-cunao/la-cerveza)<br/><br/><a href="https://cuonda.com/planeta-cunao/la-cerveza"><img src="https://cuonda.com/storage/podcasts/37/1632385/image.jpg?gen=af45bdf24c4a37989b086c819f138bf9" width=50%></a>
