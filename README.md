@@ -9,4 +9,4 @@ Si quieres ponerte en contacto conmigo, puedes escribirme por [✉️Telegram](h
 
 ## Escucha el último episodio de Planeta Cuñao:
 
-### [La cerveza](https://cuonda.com/planeta-cunao/la-cerveza)<br/><br/><a href="https://cuonda.com/planeta-cunao/la-cerveza"><img src="https://cuonda.com/storage/podcasts/37/1632385/image.jpg?gen=14360e5a8aaca011fd76126dda86a26c" width=50%></a>
+### [El coleccionismo](https://cuonda.com/planeta-cunao/el-coleccionismo)<br/><br/><a href="https://cuonda.com/planeta-cunao/el-coleccionismo"><img src="https://cuonda.com/storage/podcasts/37/1633047/image.jpg?gen=376121d945d3f74b98aef2174fce7c60" width=50%></a>
