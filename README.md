@@ -9,4 +9,4 @@ Si quieres ponerte en contacto conmigo, puedes escribirme por [✉️Telegram](h
 
 ## Escucha el último episodio de Planeta Cuñao:
 
-### [El ego](https://cuonda.com/planeta-cunao/el-ego)<br/><br/><a href="https://cuonda.com/planeta-cunao/el-ego"><img src="https://cuonda.com/storage/podcasts/37/1633965/image.jpg?gen=fc4c888bbe9a7abf4416dfcece0f7791" width=50%></a>
+### [Los idiomas](https://cuonda.com/planeta-cunao/los-idiomas)<br/><br/><a href="https://cuonda.com/planeta-cunao/los-idiomas"><img src="https://cuonda.com/storage/podcasts/37/1635634/image.jpg?gen=90d35ac4eab96a145775ccf082d6f422" width=50%></a>
