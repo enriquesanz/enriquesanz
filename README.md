@@ -9,4 +9,4 @@ Si quieres ponerte en contacto conmigo, puedes escribirme por [✉️Telegram](h
 
 ## Escucha el último episodio de Planeta Cuñao:
 
-### [Los idiomas](https://cuonda.com/planeta-cunao/los-idiomas)<br/><br/><a href="https://cuonda.com/planeta-cunao/los-idiomas"><img src="https://cuonda.com/storage/podcasts/37/1635634/image.jpg?gen=90d35ac4eab96a145775ccf082d6f422" width=50%></a>
+### [Inventos made in Spain](https://cuonda.com/planeta-cunao/inventos-made-in-spain)<br/><br/><a href="https://cuonda.com/planeta-cunao/inventos-made-in-spain"><img src="https://cuonda.com/storage/podcasts/37/1636763/image.jpg?gen=785061141cd1d616cdffab03dd5a4bad" width=50%></a>
