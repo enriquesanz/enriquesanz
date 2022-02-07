@@ -9,4 +9,4 @@ Si quieres ponerte en contacto conmigo, puedes escribirme por [✉️Telegram](h
 
 ## Escucha el último episodio de Planeta Cuñao:
 
-### [El lejano oeste](https://cuonda.com/planeta-cunao/el-lejano-oeste)<br/><br/><a href="https://cuonda.com/planeta-cunao/el-lejano-oeste"><img src="https://cuonda.com/storage/podcasts/37/1637800/image.jpg?gen=71978c8fe1ebfb353f707c20e4f8aa7f" width=50%></a>
+### [El lejano oeste](https://cuonda.com/planeta-cunao/el-lejano-oeste)<br/><br/><a href="https://cuonda.com/planeta-cunao/el-lejano-oeste"><img src="https://cuonda.com/storage/podcasts/37/1637800/image.jpg?gen=acea205101109ab06493159d5cb71f02" width=50%></a>
