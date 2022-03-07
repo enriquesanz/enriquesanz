@@ -9,4 +9,4 @@ Si quieres ponerte en contacto conmigo, puedes escribirme por [✉️Telegram](h
 
 ## Escucha el último episodio de Planeta Cuñao:
 
-### [Los sueños](https://cuonda.com/planeta-cunao/los-suenos)<br/><br/><a href="https://cuonda.com/planeta-cunao/los-suenos"><img src="https://cuonda.com/storage/podcasts/37/1639573/image.png?gen=2125d64309b0ce056773cacdde0c8f46" width=50%></a>
+### [Los sueños](https://cuonda.com/planeta-cunao/los-suenos)<br/><br/><a href="https://cuonda.com/planeta-cunao/los-suenos"><img src="https://cuonda.com/storage/podcasts/37/1639573/image.png?gen=8f14c8b8d5262a952c32de23e9481b6b" width=50%></a>
