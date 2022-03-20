@@ -9,4 +9,4 @@ Si quieres ponerte en contacto conmigo, puedes escribirme por [✉️Telegram](h
 
 ## Escucha el último episodio de Planeta Cuñao:
 
-### [Los pueblos](https://cuonda.com/planeta-cunao/los-pueblos)<br/><br/><a href="https://cuonda.com/planeta-cunao/los-pueblos"><img src="https://cuonda.com/storage/podcasts/37/1640620/image.png?gen=0f71134f8fcdd2d753f781900f6259f5" width=50%></a>
+### [Los pueblos](https://cuonda.com/planeta-cunao/los-pueblos)<br/><br/><a href="https://cuonda.com/planeta-cunao/los-pueblos"><img src="https://cuonda.com/storage/podcasts/37/1640620/image.png?gen=05b0f5ce6d70158833c5e2187331b073" width=50%></a>
