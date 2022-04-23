@@ -9,4 +9,4 @@ Si quieres ponerte en contacto conmigo, puedes escribirme por [✉️Telegram](h
 
 ## Escucha el último episodio de Planeta Cuñao:
 
-### [La teletienda](https://cuonda.com/planeta-cunao/la-teletienda)<br/><br/><a href="https://cuonda.com/planeta-cunao/la-teletienda"><img src="https://cuonda.com/storage/podcasts/37/1641443/image.jpeg?gen=17b2b20321ea0a91976af5944b1246d4" width=50%></a>
+### [Los piratas](https://cuonda.com/planeta-cunao/los-piratas)<br/><br/><a href="https://cuonda.com/planeta-cunao/los-piratas"><img src="https://cuonda.com/storage/podcasts/37/1643022/image.jpeg?gen=c5e9b69c9dbdfcd44719816fb899e0ea" width=50%></a>
