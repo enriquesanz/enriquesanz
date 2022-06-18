@@ -9,4 +9,4 @@ Si quieres ponerte en contacto conmigo, puedes escribirme por [✉️Telegram](h
 
 ## Escucha el último episodio de Planeta Cuñao:
 
-### [Deportes raros Vol.2](https://cuonda.com/planeta-cunao/deportes-raros-vol2)<br/><br/><a href="https://cuonda.com/planeta-cunao/deportes-raros-vol2"><img src="https://cuonda.com/storage/podcasts/37/1647440/image.jpeg?gen=27bec913623468572a0494f828fe0554" width=50%></a>
+### [Los magos y la magia](https://cuonda.com/planeta-cunao/los-magos-y-la-magia)<br/><br/><a href="https://cuonda.com/planeta-cunao/los-magos-y-la-magia"><img src="https://cuonda.com/storage/podcasts/37/1650582/image.jpg?gen=83782f5d3a5cc9d4bdd22c4612d993a1" width=50%></a>
