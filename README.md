@@ -9,4 +9,4 @@ Si quieres ponerte en contacto conmigo, puedes escribirme por [✉️Telegram](h
 
 ## Escucha el último episodio de Planeta Cuñao:
 
-### [Los magos y la magia](https://cuonda.com/planeta-cunao/los-magos-y-la-magia)<br/><br/><a href="https://cuonda.com/planeta-cunao/los-magos-y-la-magia"><img src="https://cuonda.com/storage/podcasts/37/1650582/image.jpg?gen=d410f552c2cd3d37c4d9851c4aa771f9" width=50%></a>
+### [Hoteles Malditos](https://cuonda.com/planeta-cunao/hoteles-malditos)<br/><br/><a href="https://cuonda.com/planeta-cunao/hoteles-malditos"><img src="https://cuonda.com/storage/podcasts/37/1651227/image.png?gen=3fe6054f8d26b9a25e614c77c2b664c3" width=50%></a>
