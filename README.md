@@ -9,4 +9,4 @@ Si quieres ponerte en contacto conmigo, puedes escribirme por [✉️Telegram](h
 
 ## Escucha el último episodio de Planeta Cuñao:
 
-### [Hoteles Malditos](https://cuonda.com/planeta-cunao/hoteles-malditos)<br/><br/><a href="https://cuonda.com/planeta-cunao/hoteles-malditos"><img src="https://cuonda.com/storage/podcasts/37/1651227/image.png?gen=211f15efcebeda44c9c581ca208f93b6" width=50%></a>
+### [¿Y tú de qué trabajas?](https://cuonda.com/planeta-cunao/y-tu-de-que-trabajas)<br/><br/><a href="https://cuonda.com/planeta-cunao/y-tu-de-que-trabajas"><img src="https://cuonda.com/storage/podcasts/37/1653818/image.png?gen=9c6c9a352566007ada06c1ee907469eb" width=50%></a>
