@@ -9,4 +9,4 @@ Si quieres ponerte en contacto conmigo, puedes escribirme por [✉️Telegram](h
 
 ## Escucha el último episodio de Planeta Cuñao:
 
-### [¿De qué va esa canción?](https://cuonda.com/planeta-cunao/de-que-va-esa-cancion)<br/><br/><a href="https://cuonda.com/planeta-cunao/de-que-va-esa-cancion"><img src="https://cuonda.com/storage/podcasts/37/1655001/image.png?gen=bcd59b750f55268236a74668d780eeaf" width=50%></a>
+### [El café](https://cuonda.com/planeta-cunao/el-cafe)<br/><br/><a href="https://cuonda.com/planeta-cunao/el-cafe"><img src="https://cuonda.com/storage/podcasts/37/1655507/image.png?gen=f8db7bb2ba9b315c584a279f87c1d737" width=50%></a>
