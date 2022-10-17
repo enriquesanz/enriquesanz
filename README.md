@@ -9,4 +9,4 @@ Si quieres ponerte en contacto conmigo, puedes escribirme por [✉️Telegram](h
 
 ## Escucha el último episodio de Planeta Cuñao:
 
-### [El café](https://cuonda.com/planeta-cunao/el-cafe)<br/><br/><a href="https://cuonda.com/planeta-cunao/el-cafe"><img src="https://cuonda.com/storage/podcasts/37/1655507/image.png?gen=89189229d9e130c2ad49e0dc3a773e2d" width=50%></a>
+### [El café](https://cuonda.com/planeta-cunao/el-cafe)<br/><br/><a href="https://cuonda.com/planeta-cunao/el-cafe"><img src="https://cuonda.com/storage/podcasts/37/1655507/image.png?gen=ededfa609b1b3c15e11dd7617e2863a4" width=50%></a>
