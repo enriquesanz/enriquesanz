@@ -9,4 +9,4 @@ Si quieres ponerte en contacto conmigo, puedes escribirme por [✉️Telegram](h
 
 ## Escucha el último episodio de Planeta Cuñao:
 
-### [Los robots](https://cuonda.com/planeta-cunao/los-robots)<br/><br/><a href="https://cuonda.com/planeta-cunao/los-robots"><img src="https://cuonda.com/storage/podcasts/37/1655936/image.png?gen=11151a520c8a1cdf2279eebdd6e33197" width=50%></a>
+### [Los robots](https://cuonda.com/planeta-cunao/los-robots)<br/><br/><a href="https://cuonda.com/planeta-cunao/los-robots"><img src="https://cuonda.com/storage/podcasts/37/1655936/image.png?gen=acac5371a3303dcbd8920db1562f5d4b" width=50%></a>
