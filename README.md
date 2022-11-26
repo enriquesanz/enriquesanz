@@ -9,4 +9,4 @@ Si quieres ponerte en contacto conmigo, puedes escribirme por [✉️Telegram](h
 
 ## Escucha el último episodio de Planeta Cuñao:
 
-### [Experimentos psicológicos](https://cuonda.com/planeta-cunao/experimentos-psicologicos)<br/><br/><a href="https://cuonda.com/planeta-cunao/experimentos-psicologicos"><img src="https://cuonda.com/storage/podcasts/37/1656242/image.png?gen=93c5499f6cfd20749a03f44db6ff1689" width=50%></a>
+### [Deportistas totales](https://cuonda.com/planeta-cunao/deportistas-totales)<br/><br/><a href="https://cuonda.com/planeta-cunao/deportistas-totales"><img src="https://cuonda.com/storage/podcasts/37/1656764/image.png?gen=4344b2af9987734cc5e42f1f6db3cd4c" width=50%></a>
