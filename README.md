@@ -9,4 +9,4 @@ Si quieres ponerte en contacto conmigo, puedes escribirme por [✉️Telegram](h
 
 ## Escucha el último episodio de Planeta Cuñao:
 
-### [Deportistas totales](https://cuonda.com/planeta-cunao/deportistas-totales)<br/><br/><a href="https://cuonda.com/planeta-cunao/deportistas-totales"><img src="https://cuonda.com/storage/podcasts/37/1656764/image.png?gen=929fc3ca92f3c4e9211fcb4f5cf64e64" width=50%></a>
+### [Las discotecas](https://cuonda.com/planeta-cunao/las-discotecas)<br/><br/><a href="https://cuonda.com/planeta-cunao/las-discotecas"><img src="https://cuonda.com/storage/podcasts/37/1657133/image.png?gen=1b31ca8bc14e1eacac429dafdb25c38d" width=50%></a>
