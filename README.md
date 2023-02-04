@@ -9,4 +9,4 @@ Si quieres ponerte en contacto conmigo, puedes escribirme por [✉️Telegram](h
 
 ## Escucha el último episodio de Planeta Cuñao:
 
-### [Grandes impostores](https://cuonda.com/planeta-cunao/grandes-impostores)<br/><br/><a href="https://cuonda.com/planeta-cunao/grandes-impostores"><img src="https://cuonda.com/storage/podcasts/37/1658289/image.png?gen=1518b1cad02098955039a45f097758d6" width=50%></a>
+### [El poder](https://cuonda.com/planeta-cunao/el-poder)<br/><br/><a href="https://cuonda.com/planeta-cunao/el-poder"><img src="https://cuonda.com/storage/podcasts/37/1658671/image.png?gen=2406768dfc2302fab965602017d85fc4" width=50%></a>
