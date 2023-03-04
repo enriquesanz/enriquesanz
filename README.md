@@ -9,4 +9,4 @@ Si quieres ponerte en contacto conmigo, puedes escribirme por [✉️Telegram](h
 
 ## Escucha el último episodio de Planeta Cuñao:
 
-### [Grandes rivalidades](https://cuonda.com/planeta-cunao/grandes-rivalidades)<br/><br/><a href="https://cuonda.com/planeta-cunao/grandes-rivalidades"><img src="https://cuonda.com/storage/podcasts/37/1658876/image.png?gen=dc64d485be0c2de48f242dc33b6a027e" width=50%></a>
+### [La vergüenza](https://cuonda.com/planeta-cunao/la-vergueenza)<br/><br/><a href="https://cuonda.com/planeta-cunao/la-vergueenza"><img src="https://cuonda.com/storage/podcasts/37/1659227/image.png?gen=726bf492374ed8060386dffb10aab6b7" width=50%></a>
