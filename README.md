@@ -9,4 +9,4 @@ Si quieres ponerte en contacto conmigo, puedes escribirme por [✉️Telegram](h
 
 ## Escucha el último episodio de Planeta Cuñao:
 
-### [La vergüenza](https://cuonda.com/planeta-cunao/la-vergueenza)<br/><br/><a href="https://cuonda.com/planeta-cunao/la-vergueenza"><img src="https://cuonda.com/storage/podcasts/37/1659227/image.png?gen=9671b61587f17e1e854444c7c3479ed1" width=50%></a>
+### [Las catedrales](https://cuonda.com/planeta-cunao/las-catedrales)<br/><br/><a href="https://cuonda.com/planeta-cunao/las-catedrales"><img src="https://cuonda.com/storage/podcasts/37/1659467/image.png?gen=82f5ab46d392d1b27af189a784a9c6ca" width=50%></a>
