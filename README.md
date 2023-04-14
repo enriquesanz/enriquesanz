@@ -9,4 +9,4 @@ Si quieres ponerte en contacto conmigo, puedes escribirme por [✉️Telegram](h
 
 ## Escucha el último episodio de Planeta Cuñao:
 
-### [La memoria](https://cuonda.com/planeta-cunao/la-memoria)<br/><br/><a href="https://cuonda.com/planeta-cunao/la-memoria"><img src="https://cuonda.com/storage/podcasts/37/1659699/image.png?gen=ee42266aa2f16c14210f3bb9f38622b9" width=50%></a>
+### [La memoria](https://cuonda.com/planeta-cunao/la-memoria)<br/><br/><a href="https://cuonda.com/planeta-cunao/la-memoria"><img src="https://cuonda.com/storage/podcasts/37/1659699/image.png?gen=2530caf0491f28a5094b4a6e2ca35600" width=50%></a>
