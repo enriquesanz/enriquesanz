@@ -9,4 +9,4 @@ Si quieres ponerte en contacto conmigo, puedes escribirme por [✉️Telegram](h
 
 ## Escucha el último episodio de Planeta Cuñao:
 
-### [Las tribus](https://cuonda.com/planeta-cunao/las-tribus)<br/><br/><a href="https://cuonda.com/planeta-cunao/las-tribus"><img src="https://cuonda.com/storage/podcasts/37/1661249/image.png?gen=92510f034b95e40fdfcb1aa9aecdd718" width=50%></a>
+### [Las tribus](https://cuonda.com/planeta-cunao/las-tribus)<br/><br/><a href="https://cuonda.com/planeta-cunao/las-tribus"><img src="https://cuonda.com/storage/podcasts/37/1661249/image.png?gen=460d56344b2ab8c9df8c749bf8482151" width=50%></a>
