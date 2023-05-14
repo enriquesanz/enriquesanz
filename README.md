@@ -9,4 +9,4 @@ Si quieres ponerte en contacto conmigo, puedes escribirme por [✉️Telegram](h
 
 ## Escucha el último episodio de Planeta Cuñao:
 
-### [La música de los 90 Vol.2](https://cuonda.com/planeta-cunao/la-musica-de-los-90-vol2)<br/><br/><a href="https://cuonda.com/planeta-cunao/la-musica-de-los-90-vol2"><img src="https://cuonda.com/storage/podcasts/37/1661685/image.png?gen=322a6b203cd0d095bfdba3ad79241abd" width=50%></a>
+### [La música de los 90 Vol.2](https://cuonda.com/planeta-cunao/la-musica-de-los-90-vol2)<br/><br/><a href="https://cuonda.com/planeta-cunao/la-musica-de-los-90-vol2"><img src="https://cuonda.com/storage/podcasts/37/1661685/image.png?gen=a752458f8e7d101ad760c5e03c17fe6e" width=50%></a>
