@@ -9,4 +9,4 @@ Si quieres ponerte en contacto conmigo, puedes escribirme por [✉️Telegram](h
 
 ## Escucha el último episodio de Planeta Cuñao:
 
-### [Las palabrotas](https://cuonda.com/planeta-cunao/las-palabrotas)<br/><br/><a href="https://cuonda.com/planeta-cunao/las-palabrotas"><img src="https://cuonda.com/storage/podcasts/37/1661997/image.png?gen=d6b482dfc8aec917e9dbd53fb37a8548" width=50%></a>
+### [Las palabrotas](https://cuonda.com/planeta-cunao/las-palabrotas)<br/><br/><a href="https://cuonda.com/planeta-cunao/las-palabrotas"><img src="https://cuonda.com/storage/podcasts/37/1661997/image.png?gen=5af532f72256be50fe96a0ab7a101e71" width=50%></a>
