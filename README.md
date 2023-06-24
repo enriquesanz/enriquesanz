@@ -9,4 +9,4 @@ Si quieres ponerte en contacto conmigo, puedes escribirme por [✉️Telegram](h
 
 ## Escucha el último episodio de Planeta Cuñao:
 
-### [Pensamiento lateral](https://cuonda.com/planeta-cunao/pensamiento-lateral)<br/><br/><a href="https://cuonda.com/planeta-cunao/pensamiento-lateral"><img src="https://cuonda.com/storage/podcasts/37/1662233/image.png?gen=86425b3c6e3916b1a969ec5d6aee4c16" width=50%></a>
+### [La ropa](https://cuonda.com/planeta-cunao/la-ropa)<br/><br/><a href="https://cuonda.com/planeta-cunao/la-ropa"><img src="https://cuonda.com/storage/podcasts/37/1662469/image.png?gen=6c9c64b2a4a348579e32fcc8c08df78d" width=50%></a>
