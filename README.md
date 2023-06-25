@@ -9,4 +9,4 @@ Si quieres ponerte en contacto conmigo, puedes escribirme por [✉️Telegram](h
 
 ## Escucha el último episodio de Planeta Cuñao:
 
-### [La ropa](https://cuonda.com/planeta-cunao/la-ropa)<br/><br/><a href="https://cuonda.com/planeta-cunao/la-ropa"><img src="https://cuonda.com/storage/podcasts/37/1662469/image.png?gen=9e233619e72debb6f856569650ece509" width=50%></a>
+### [La ropa](https://cuonda.com/planeta-cunao/la-ropa)<br/><br/><a href="https://cuonda.com/planeta-cunao/la-ropa"><img src="https://cuonda.com/storage/podcasts/37/1662469/image.png?gen=b37120ebc1fe096794c4fc9547ba5850" width=50%></a>
